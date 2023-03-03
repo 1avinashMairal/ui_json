@@ -1,1 +1,9 @@
 https://user-images.githubusercontent.com/106060767/222727277-10aba637-4f6e-4408-80c3-7e7e31db9d26.png
+![img1](https://user-images.githubusercontent.com/106060767/222734610-fe20568a-c633-4363-85cd-46f3bb0ede5d.png)
+![img2](https://user-images.githubusercontent.com/106060767/222734623-93a9b0b3-0c54-4fb9-8930-262100c6a003.png)
+![img3](https://user-images.githubusercontent.com/106060767/222734658-e0364f7a-beb3-48da-94e2-d7a2bbcb9bfe.png)
+![live](https://user-images.githubusercontent.com/106060767/222734682-72dc14b4-73fa-4049-b2a4-07a185bdbf1e.png)
+![panchangam](https://user-images.githubusercontent.com/106060767/222734695-6976ecee-167a-4b75-9c3c-890faf71b4e0.png)
+![songs](https://user-images.githubusercontent.com/106060767/222734715-843c6bef-da66-41a6-896d-8477340db6a1.png)
+![stotra](https://user-images.githubusercontent.com/106060767/222734740-9e8cbb6a-e0ab-441a-984f-9a905a5f3351.png)
+![videos](https://user-images.githubusercontent.com/106060767/222734779-60d26072-b28a-4a79-8943-50dc0b9780c0.png)
